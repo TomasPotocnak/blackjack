@@ -1,1 +1,1 @@
-# blackjack
+# blackjack ze vraj :D
